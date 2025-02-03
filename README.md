@@ -98,8 +98,3 @@ Ask your doctor if these may **speed up brain function recovery**.
 ✔ **Antioxidants, dopamine precursors, and neuroprotective supplements** accelerate healing.  
 ✔ **Exercise, deep sleep, and mental stimulation are mandatory for dopamine restoration.**  
 ✔ **Temporary medications (Bupropion, Memantine, Pramipexole) may help in severe cases.**  
-
----
-
-### **Would you like help tracking your progress or adjusting this plan based on your symptoms?**  
-I can also recommend specific supplement brands, meal plans, or guided brain-training exercises!
